@@ -7,4 +7,3 @@ DevOps Engineer
 * 🌍  I'm based in Melbourne, Australia
 * ✉️  You can contact me at [zeeshannoorullah@hotmail.com](mailto:zeeshannoorullah@hotmail.com)
 
-### Socials
